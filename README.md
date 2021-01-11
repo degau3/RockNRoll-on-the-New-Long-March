@@ -1,2 +1,1 @@
-# 新长征路上的摇滚
-无损flac格式
+# RockNRoll-on-the-New-Long-March
